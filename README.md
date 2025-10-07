@@ -1,2 +1,2 @@
 # Lab2
-i lolve
+i love
